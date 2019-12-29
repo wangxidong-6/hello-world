@@ -1,7 +1,7 @@
 # hello-world
 Just another repository
 
-Hi humanbeings!
+Hi human beings!
 
 Yes,guess right! I'm hobbit.It's amazing to see you guys so ridiculous.
 Here , my adverture starts.
